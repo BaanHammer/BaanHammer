@@ -5,7 +5,7 @@
 - 💬 Ask me about space
 - 📫 How to reach me: Discord - username tubbzy
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have 2 cats, Jasper and Shelly
+- ⚡ Fun fact: I have 4 cats, Jasper, Shelly, Beau and Fae!
 
 <!--
 **BaanHammer/BaanHammer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
